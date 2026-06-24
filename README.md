@@ -1,6 +1,7 @@
-## meow
+## I LOVE JARD I LUV JARD drools
 
-<img width="942" height="643" alt="Screenshot_20260621_170317_Chrome" src="https://github.com/user-attachments/assets/2cbbed5e-2919-40ba-8dbe-094c76712155" />
+<img width="815" height="744" alt="Screenshot_20260623_200156_Chrome" src="https://github.com/user-attachments/assets/2e3605b0-37e8-4dbc-b4a0-6277e360ea7c" />
+
 
 
 
